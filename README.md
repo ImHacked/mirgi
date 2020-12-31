@@ -1,3 +1,1 @@
-A fun only site.
-For fun only.
-A meme site
+A site meant for only fun. No serious content.
